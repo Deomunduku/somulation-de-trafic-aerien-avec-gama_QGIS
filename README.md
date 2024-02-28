@@ -26,8 +26,8 @@ Fournir des commentaires et des suggestions pour améliorer la qualité du proje
 Contact
 Pour toute question ou suggestion, n'hésitez pas à me contacter :
 
-Email : votre@email.com
-LinkedIn : Votre Profil LinkedIn
+Email : deomundukuobama@gmail.com
+
 Je suis ouvert aux collaborations et aux idées novatrices pour faire avancer ce projet !
 
 ordre de fonctionnement 
